@@ -1,0 +1,4 @@
+- 👋 Oi, me chamo *Germano*
+- 📖 Estou no segundo ano do ensino médio
+- 📙 Gosto de ler e pintar
+- 🧑‍🚀 Minha profissão dos sonhos é me tornar *astrunauta*  
